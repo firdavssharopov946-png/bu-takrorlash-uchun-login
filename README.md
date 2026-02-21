@@ -1,1 +1,0 @@
-# bu-takrorlash-uchun-login
